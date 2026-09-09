@@ -6,7 +6,7 @@
 
 ---
 ## 太空了喵，放只呆呆蝶🤤
-![Pic1](https://github.com/SmileTortoise1/Castorice/releases/download/UploadPictureResource/82620F58A759A7631AE955A165DBE9D6.png)
-![Pic2](https://github.com/SmileTortoise1/Castorice/releases/download/UploadPictureResource/146901289_p0.jpg)
+![Pic1](https://github.com/SmileTortoise1/Castorice/releases/download/Upload-Picture-Resource/82620F58A759A7631AE955A165DBE9D6.png)
+![Pic2](https://github.com/SmileTortoise1/Castorice/releases/download/Upload-Picture-Resource/146901289_p0.jpg)
 > 玻吕刻斯哈气( ◣ ‸ ◢ )
 > 哈！！！！！
